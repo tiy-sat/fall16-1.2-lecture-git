@@ -1,0 +1,1 @@
+My name is Nicolas Roybal. I’m from a small town called Las Vegas, New Mexico. A fun fact about myself is that I’m a second-degree black belt in Tae Kwon Do. With the knowledge I take away from this course, I would like to completely change my career to pursue something in web development.
